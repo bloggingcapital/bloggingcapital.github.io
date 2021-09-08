@@ -1,1 +1,0 @@
-# bloggingcapital.github.io
